@@ -60,11 +60,17 @@
 *Of building up the newer, larger life!*
 
 **Join hands! Join hands! Ye nations of the stock!**
-- And make henceforth a mighty Trust for Peace.
-- A great enduring peace that shall withstand
-- The shocks of time and circumstance; and every land
-- Shall rise and bless you--and shall never cease
-- To bless you--for that glorious gift of Peace.
 
-By _William Arthur Dunkerley (John Oxenham)_
-[Thank God for Peace!](http://www.public-domain-poetry.com/william-arthur-dunkerley/thank-god-for-peace-28167)
+*And make henceforth a mighty Trust for Peace.*
+
+*A great enduring peace that shall withstand*
+
+*The shocks of time and circumstance; and every land*
+
+*Shall rise and bless you--and shall never cease*
+
+*To bless you--for that glorious gift of Peace.*
+
+- By _William Arthur Dunkerley (John Oxenham)_
+
+- [Thank God for Peace!](http://www.public-domain-poetry.com/william-arthur-dunkerley/thank-god-for-peace-28167)
