@@ -3,61 +3,61 @@
 
 **Thank God for Peace!**
 
-Up to the sombre sky
+*Up to the sombre sky*
 
-Rolled one great thankful sigh,
+*Rolled one great thankful sigh,*
 
-Rolled one great gladsome cry--
+*Rolled one great gladsome cry--*
 
-The soul's deliverance of a mighty people.
-
-**Thank God for Peace!**
-
-The long-low-hanging war-cloud rolled away,
-
-And night glowed brighter than the brightest day.
-
-For Peace is Light,
-
-And War is grimmer than the Night.
+*The soul's deliverance of a mighty people.*
 
 **Thank God for Peace!**
 
-Great ocean, was your mighty calm unstirred
+*The long-low-hanging war-cloud rolled away,*
 
-As through your depths, unseen, unheard,
+*And night glowed brighter than the brightest day.*
 
-Sped on its way the glorious word
+*For Peace is Light,*
 
-That called a weary nation to ungird,
-
-And sheathed once more the keen, reluctant sword?
+*And War is grimmer than the Night.*
 
 **Thank God for Peace!**
 
-The word came to us as we knelt in prayer
+*Great ocean, was your mighty calm unstirred*
 
-That wars might cease.
+*As through your depths, unseen, unheard,*
 
-Peace found us on our knees, and prayer for Peace
+*Sped on its way the glorious word*
 
-Was changed to prayer of deepest thankfulness.
+*That called a weary nation to ungird,*
 
-We knelt in War, we rose in Peace to bless
-
-Thy grace, Thy care, Thy tenderness.
+*And sheathed once more the keen, reluctant sword?*
 
 **Thank God for Peace!**
 
-No matter now the rights and wrongs of it;
+*The word came to us as we knelt in prayer*
 
-You fought us bravely, and we fought you fair.
+*That wars might cease.*
 
-The fight is done. Grip hands! No malice bear!
+*Peace found us on our knees, and prayer for Peace*
 
-We greet you, brothers, to the nobler strife
+*Was changed to prayer of deepest thankfulness.*
 
-Of building up the newer, larger life!
+*We knelt in War, we rose in Peace to bless*
+
+*Thy grace, Thy care, Thy tenderness.*
+
+**Thank God for Peace!**
+
+*No matter now the rights and wrongs of it;*
+
+*You fought us bravely, and we fought you fair.*
+
+*The fight is done. Grip hands! No malice bear!*
+
+*We greet you, brothers, to the nobler strife*
+
+*Of building up the newer, larger life!*
 
 **Join hands! Join hands! Ye nations of the stock!**
 - And make henceforth a mighty Trust for Peace.
